@@ -1,0 +1,2 @@
+# Nunca desistir
+# Persistir sempre
